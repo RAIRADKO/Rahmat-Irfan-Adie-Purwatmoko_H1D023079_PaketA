@@ -1,1 +1,1 @@
-gak tahu mas saya ngasal
+gak tahu mas, saya ngasal
